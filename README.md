@@ -1,4 +1,4 @@
-## Welcome to my GitHub Repositorz!
+## Welcome to my GitHub Repository!
 
 My name is Abdullah, currently doing my second year of my BSc. in Health Care and Disease Prevention (Public Health Supervisor) @ Semmelweis University ETK.
 
